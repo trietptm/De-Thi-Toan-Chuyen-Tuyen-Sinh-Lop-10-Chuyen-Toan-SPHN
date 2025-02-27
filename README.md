@@ -2,7 +2,7 @@
 Đề Thi Tuyển Sinh Toán chuyên Vào Lớp 10 Chuyên Toán Trường THPT Chuyên Đại Học Sư Phạm, Hà Nội
 
 ## 2023-2024:
-![image](https://github.com/user-attachments/assets/d6267383-e16e-4c39-91f1-b6e8ee2d84f6)
+![image](https://github.com/user-attachments/assets/9706eaae-386d-455f-9cbc-ccc02c02dfc9)
 
 ## 2021-2022:
 ![image](https://github.com/user-attachments/assets/9b73a61c-b96d-4473-9738-867bbed89e98)
