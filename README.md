@@ -9,7 +9,7 @@
 ## 2021-2022:
 ![image](https://github.com/user-attachments/assets/9b73a61c-b96d-4473-9738-867bbed89e98)
 
-![image](https://github.com/user-attachments/assets/8d9f0bf5-405f-42b0-99f6-97ac61ad5af8)
+![image](https://github.com/user-attachments/assets/eedf75f9-fb98-4d8c-8c67-25c085104264)
 
 ## 2019-2020:
 ![image](https://github.com/user-attachments/assets/9b141e4a-a3ab-4c72-822b-78b26e60abd8)
