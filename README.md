@@ -15,6 +15,8 @@
 ![image](https://github.com/user-attachments/assets/eedf75f9-fb98-4d8c-8c67-25c085104264)
 
 ## 2020-2021:
+![image](https://github.com/user-attachments/assets/4018a81c-b0c2-462e-863d-c6d60a0eb920)
+
 ![image](https://github.com/user-attachments/assets/57cdbf15-ed7b-418c-bc5f-a28178434a23)
 
 ## 2019-2020:
