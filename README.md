@@ -25,6 +25,8 @@
 ![image](https://github.com/user-attachments/assets/9b141e4a-a3ab-4c72-822b-78b26e60abd8)
 
 ## 2018-2019:
+![image](https://github.com/user-attachments/assets/eb80dcaf-27dc-47f1-9e77-c93a5744d854)
+
 ![image](https://github.com/user-attachments/assets/e49bf93a-39b6-4afd-841d-2355ed109f7d)
 
 ## 2017-2018:
