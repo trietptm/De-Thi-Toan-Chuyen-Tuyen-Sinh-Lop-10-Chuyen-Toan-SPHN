@@ -41,6 +41,10 @@
 ## 2015-2016:
 ![image](https://github.com/user-attachments/assets/8252b7df-ee28-4b12-8d61-b72cf81fa9b5)
 
+## 2013-2014:
+![image](https://github.com/user-attachments/assets/edd089d6-8401-45b3-ad8a-2fda9ba334eb)
+
+
 
 ## THAM KHẢO THÊM:
 * https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Lop-10-Chuyen-SPHN
